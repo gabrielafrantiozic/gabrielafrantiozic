@@ -1,4 +1,4 @@
-:new_moon: ***Quem sou eu*** :new_moon:
+:waxing_crescent_moon: ***Quem sou eu*** :waxing_crescent_moon:
 
 :zap:  *Me chamo Gabriela Constantini*  :zap:
 
